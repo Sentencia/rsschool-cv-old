@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Sentencia.github.io/rsschool-cv/cv
